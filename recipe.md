@@ -1,0 +1,2 @@
+To make the Oreo Cake first you need to add all your oreos to a bowl, pour milk on top of the oreos, next you should mix it with the spoon to make it a batter for the cake.
+Next you should keep the batter in the microwawe for 1 to 2 minutes. At last your oreo cake is ready. You can decorate the cake of your choice and the Oreo Cake is ready to eat.
